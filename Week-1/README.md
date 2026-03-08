@@ -18,7 +18,7 @@ Lapse: https://lapse.hackclub.com/timelapse/c0cwOsURbS5K
 
 ![Keycap 1](1.png)
 
-![Keycap 2](2.png)
+![I leaked my adress in this photo lmao](2.png)
 
 ![Keycap 3](3.png)
 
